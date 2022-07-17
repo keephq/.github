@@ -1,0 +1,1 @@
+We are paladins ⚔️🛡️
